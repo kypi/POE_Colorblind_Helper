@@ -1,0 +1,1 @@
+Created the script in response to this reddit post: [https://www.reddit.com/r/pathofexile/comments/peadm8/its_been_3275_days_the_reversion_of_the/](https://www.reddit.com/r/pathofexile/comments/peadm8/its_been_3275_days_the_reversion_of_the/)
